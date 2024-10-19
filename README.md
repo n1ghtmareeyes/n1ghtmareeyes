@@ -1,1 +1,1 @@
-the carrd in question ------> https://n1ghtmareeyes.carrd.co/
+the strawpage in question ------> https://gardengnostix.straw.page/
